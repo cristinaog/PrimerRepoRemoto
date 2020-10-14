@@ -2,7 +2,7 @@
 
 La amplia riqueza y variedad de tipos de vinos tintos de nuestro país supone una auténtica puerta abierta a experimentar con sus sabores, aromas y matices. Una invitación que, más allá del disfruto propio y pleno del caldo, pasa por el maridaje de vinos como alianza perfecta para saborear la experiencia todavía más.
 
-Y, a pesar de las apariencias, no: no es tarea menor elegir esa correcta combinación de alimentos con los distintos tipos de vino tinto.
+Y, a pesar de las apariencias, no: **no es tarea menor elegir esa correcta combinación de alimentos con los distintos tipos de vino tinto.
 
 Podemos elaborar un maridaje de vinos tintos partiendo de un falso mito que es preciso romper: *no es solo compañero de carnes*, sino que el abanico de alimentos a los que puede acompañar es muchísimo más amplio.
 
@@ -19,7 +19,7 @@ Una uva noble enormemente rica en matices y aromas, que oscilan, según el tipo 
 ### Cavernet Sauvignon
 De sabor fuerte y perfume rotundo, algunos de los aromas que podemos encontrar en los caldos con protagonismo de esta uva son la grosella negra o, incluso, el chocolate. Dada la contundencia del sabor de estos vinos, para el maridaje necesitará platos a la altura de esta intensidad: carnes rojas, caza, platos con un toque amargo y quesos fuertes.
 
-<img src = "Maridaje de carnes y vinos.jpg">
+<img src = "Maridaje de carnes y vinos.png">
 
 ### Garnacha
 Dadas las características propias de este tipo de uva, su presencia en los distintos tipos de vinos tintos está acompañada de otras uvas con vistas a equilibrar su alta graduación alcohólica. Debido a esta personalidad, los vinos tintos con garnacha estarán perfectamente acompañados de platos de sabores rotundos como los quesos curados, cualquier tipo de carne, pescados de sabor intenso o, incluso, ensaladas en las que a los vegetales le acompañen carnes, quesos o, incluso, frutos secos.
