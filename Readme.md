@@ -2,9 +2,9 @@
 
 La amplia riqueza y variedad de tipos de vinos tintos de nuestro país supone una auténtica puerta abierta a experimentar con sus sabores, aromas y matices. Una invitación que, más allá del disfruto propio y pleno del caldo, pasa por el maridaje de vinos como alianza perfecta para saborear la experiencia todavía más.
 
-Y, a pesar de las apariencias, no: **no es tarea menor elegir esa correcta combinación de alimentos con los distintos tipos de vino tinto.
+Y, a pesar de las apariencias, no: **no es tarea menor elegir esa correcta combinación de alimentos con los distintos tipos de vino tinto.**
 
-Podemos elaborar un maridaje de vinos tintos partiendo de un falso mito que es preciso romper: *no es solo compañero de carnes*, sino que el abanico de alimentos a los que puede acompañar es muchísimo más amplio.
+Podemos elaborar un maridaje de vinos tintos partiendo de un falso mito que es preciso romper: *no es solo compañero de carnes*, sino que el abanico de alimentos a los que puede acompañar es muchísimo más amplio.*
 
 Conocer los matices de las distintas uvas, clave en el maridaje con vinos tintos. Y, a pesar de que hay muchos matices a la hora de elegir un perfecto maridaje con vino tinto, hoy vamos a centrarnos en un factor que puede ser esclarecedor para ello: el tipo de uva con que esté elaborado un determinado vino.
 
